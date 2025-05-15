@@ -2,7 +2,7 @@
 
 [![result button](https://github.com/user-attachments/assets/5aa04fb7-3b29-4e7b-bab3-a32d6a39c915)](https://amzn.to/4jZKnFH)
 
-**Kerala Lottery Result Today: Karunya Plus KN-572 (15 May 2025)**([keralalotteries.net][1])
+**Kerala Lottery Result Today: Karunya Plus KN-572 (15 May 2025)**
 
 The Kerala State Lotteries Department has announced the results for the Karunya Plus KN-572 lottery draw held on **Thursday, 15 May 2025**, at **3:00 PM IST**. The draw took place at Gorky Bhavan, Near Bakery Junction, Thiruvananthapuram. Below are the detailed results:([Seminars Only][2])
 
@@ -14,13 +14,13 @@ The Kerala State Lotteries Department has announced the results for the Karunya 
 
 * **Winning Ticket:** PX 527523
 * **Location:** Irinjalakuda
-* **Agent:** Lorence K V (Agency No.: R 5264)([Free Press Journal][3], [Seminars Only][2])
+* **Agent:** Lorence K V (Agency No.: R 5264)
 
 #### 🥈 2nd Prize – ₹50,00,000 (₹50 Lakhs)
 
 * **Winning Ticket:** PZ 399679
 * **Location:** Kannur
-* **Agent:** Sathyan P (Agency No.: C 4369)([Seminars Only][2], [Free Press Journal][3])
+* **Agent:** Sathyan P (Agency No.: C 4369)
 
 #### 🥉 3rd Prize – ₹5,00,000 (₹5 Lakhs) Each
 
@@ -37,7 +37,7 @@ The Kerala State Lotteries Department has announced the results for the Karunya 
   * PW 814934
   * PX 890710
   * PY 737907
-  * PZ 688798([Republic World][4], [Free Press Journal][3], [Seminars Only][2])
+  * PZ 688798([Republic World][4], [Free Press Journal][3], 
 
 #### 🎖️ Consolation Prize – ₹5,000
 
@@ -53,13 +53,13 @@ The Kerala State Lotteries Department has announced the results for the Karunya 
   * PV 527523
   * PW 527523
   * PY 527523
-  * PZ 527523([Free Press Journal][3], [Republic World][4])
+  * PZ 527523
 
 #### 🏅 4th Prize – ₹5,000
 
 * **Winning Numbers:**
 
-  * 0300, 1599, 1936, 2711, 3127, 3314, 3389, 4226, 4345, 5433, 6386, 6630, 7231, 7742, 7839, 8151, 8579, 8924([Republic World][4])
+  * 0300, 1599, 1936, 2711, 3127, 3314, 3389, 4226, 4345, 5433, 6386, 6630, 7231, 7742, 7839, 8151, 8579, 8924
 
 #### 🎖️ 5th Prize – ₹1,000
 
